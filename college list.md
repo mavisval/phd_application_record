@@ -1,3 +1,0 @@
-#Norway:
-
-University of Oslo
